@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **ashokkumar.webdev@gmail.com**
 
-- ⚡ Fun fact **I believe every website should be as smooth as butter responsive, fast, and delightful to use**
+- ⚡ Fun fact **I believe every website should be as smooth as butter, - responsive, fast, and delightful to use**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
